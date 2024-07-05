@@ -1,0 +1,2 @@
+- 👋 Hi, I’m nedsterach
+- 😄 Pronouns: they/them
